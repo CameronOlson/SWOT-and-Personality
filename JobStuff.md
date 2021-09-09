@@ -21,3 +21,7 @@
 -I quit my job to do this so I may sacrifice a good culture fit for a job as soon as I can get it.
 -I am entering a field, at a level that there will be a lot of competition and I may not have the best interview skills.
 -I have been known to have imposter syndrome 
+
+
+## Personality
+INFP-T
